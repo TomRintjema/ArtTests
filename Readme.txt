@@ -1,0 +1,1 @@
+This is a dumping ground for ideas I'm working on. Nothing means anything.
